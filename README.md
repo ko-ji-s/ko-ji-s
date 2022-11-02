@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @ko-ji-s
-- 👀 I’m interested in
+- 👀 I’m interested in *
